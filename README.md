@@ -7,7 +7,7 @@ and I figured that I would put them on GH in case it might help some other DS or
 The "deep intuition guide" is really comprehensive and i feel like it just is a good thing to skim if you are lost or *really* want to build understanding (going for like an A or smth)
 great for homewroks / quick reference and knowing what you need to know
 
-The "intuitive guide" is more of a "oh shit i have no idea what im doing because i blew off this class for three weeks and need to understand this in a way thats reasonable.
+The "intuitive guide" is more of a "oh shit i have no idea what im doing because i blew off this class for three weeks because i was getting crunk at the clerb and need to understand this in a way thats reasonable." 
 I feel like it does a good job of breaking down things into plain english and builds like the "why" behind all of this stuff. 
 
 basically im the fucking goat for this ur welcome 
