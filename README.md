@@ -9,3 +9,5 @@ great for homewroks / quick reference and knowing what you need to know
 
 The "intuitive guide" is more of a "oh shit i have no idea what im doing because i blew off this class for three weeks and need to understand this in a way thats reasonable.
 I feel like it does a good job of breaking down things into plain english and builds like the "why" behind all of this stuff. 
+
+basically im the fucking goat for this ur welcome 
